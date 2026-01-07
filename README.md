@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @s4shubham4u
-- 👀 I’m interested in SEO and Journalism
-- 🌱 I’m currently learning Data Science
-- 💞️ I’m looking to collaborate on Data Science
+- 👀 I’m Astrologer 
+- 🌱 I’m currently practicing it
+- 💞️ I’m looking Nothing
 - 📫 How to reach me s4shubham4u@gmail.com
 
 <!---
